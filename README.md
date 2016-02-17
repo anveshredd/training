@@ -1,3 +1,4 @@
 # training
+redcdsxdcgfvbhmkfdfcfgbnmk,lxdcfgvnj,l;
 
-jh n,,mhb lkj.,m
+fdchgvjbhnjm,.vbnm,.fghjm,//
